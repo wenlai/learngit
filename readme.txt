@@ -1,1 +1,1 @@
-ten years ago,i belive if I work hard，I will get whatever i want
+I ten years ago,i belive if I work hard，I will get whatever i want
